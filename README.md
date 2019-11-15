@@ -1,4 +1,6 @@
 # hello-world
-BW
-WE ARE STARTING WITH ONBOARDING OF THE MARS LIKEMINDED TEAM TO CHANGE THE WORLD
-BW Skyba is a FinTech for supply Chain Tokenization, a blockchain solution for the benefits of SMEs.
+Multy-commodities & supply chain assets-backed security Tokenization FinTech Distributed clean energy resources
+Regulated, assets-backed  Security tokens aggregation 
+Business assets  and equities security tokenization & STO EXCHAGE BLUE BRIDGE
+Export/ Import customized marketplace;FROM WELL TO GRID & from LAND TO CONSUMERS
+REGULATORS, COMPLIANCE VEHICLES, INVESTORS's marketplace
